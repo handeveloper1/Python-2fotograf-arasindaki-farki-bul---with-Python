@@ -1,0 +1,1 @@
+# Python-2fotograf-arasindaki-farki-bul
